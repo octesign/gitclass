@@ -1,3 +1,4 @@
-dheiv sk
-kdek
-lsdjk
+foreign 
+why 
+when
+watch are necessary
